@@ -2,4 +2,4 @@
 
 ## Recent race winners
 
-GP Australia: George Russel (UK) (Mercedes) 
+GP Australia: George Russel (AU) (Mercedes) 
